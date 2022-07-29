@@ -1,1 +1,1 @@
-# Visit Our HitNext-Education Website
+# Visit Our Digital HitNext Education Website
